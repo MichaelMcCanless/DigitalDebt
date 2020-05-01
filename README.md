@@ -4,4 +4,4 @@ This is the sign up for a research project sponsored by the University of Kentuc
 
 <iframe src="https://docs.google.com/forms/d/e/1FAIpQLSdSxXiMhsMAXsz0mo0kZg4A3T_elcVnt23WyapckgCjDjSsXA/viewform?embedded=true" width="700" height="1150" frameborder="0" marginheight="0" marginwidth="0">Loading…</iframe>
 
-<img src="images/Research-EOE-286%20(2).jpg" width="200" >
+<img src="images/Research-EOE-286%20(2).jpg" width="700" >
