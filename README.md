@@ -4,7 +4,7 @@
 
 **Eligibility**: We are aiming to speak with 20-25 people who have experience using online personal installment loans. Personal installment loans are loans that can be used for any reason-- ranging from debt consolidation, to medical bills, to supplementing a monthly budget. Think mortgages or auto loans, but for everyday expenses. If you have used one of these loans from an online lender, we want to speak with you. 
 
-**Compensation**: Particcipants will be compensated $25 for one 30-60 minute interview conducted in person at a place of your choosing. If social distancing measures remain in place, interviews will be conducted online or over the phone.
+**Compensation**: Participants will be compensated $25 for one 30-60 minute interview conducted in person at a place of your choosing. If social distancing measures remain in place, interviews will be conducted online or over the phone.
 
 To sign up for the study, fill out the form below. All data collected from this form will be anonymized and cannot be traced back to you. If you have questions or concerns about participation in the study, feel free to contact me directly at michael.mccanless@uky.edu and I would be happy to provide more information. 
 
